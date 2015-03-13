@@ -1,0 +1,1 @@
+Just some pet projects I'd be working on.  Anything substantial would garner it's own project, so this is more of a dumping ground for anything I write.  Feel free to critique it if you like and send me an email if you have any questions.
